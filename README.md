@@ -1,1 +1,1 @@
-# -nternshala-LifeStyle-Store-Poject
+# -Internshala-LifeStyle-Store-Poject
